@@ -4,7 +4,7 @@ title:
 permalink: /about/
 ---
 
-## We had these wonderful breakfast table conversations...
+<!-- ## We had these wonderful breakfast table conversations... -->
 
 #### Or Rather
 
@@ -17,6 +17,6 @@ It’s one of us posting at the time, whatever thought crosses our mind as a rep
 Only that one’s breakfast is now the other one’s dinner...
 
 
-##### Contact Us
+#### Contact Us
 
 [here's our email address](mailto:ninedot5hours@gmail.com)
