@@ -1,9 +1,9 @@
-# I had breakfast in bed for ten days, here’s what happened. 
+## I had breakfast in bed for ten days, here’s what happened. 
 ### Or: If you don’t want to change, you’ll change anyway.
 
-**IT HAPPENED.** I had time to prepare, and then again I wasn’t prepared at all. You’re gone, for now, I left you at a train station, tears and sobs and all, and FFP2 masks out of place (yes, it’s still that time), the security staff gently ignoring us. And now the apartment is empty. Still stuffed with furniture (and clothes and knick-knacks), but without your presence (and clothes and knick knacks). I went through this moment in my head so many times and couldn’t really think past it. But yes… strangely enough, there’s a “past it”. I’m still here; I didn’t dissolve into nothingness.  
+**IT HAPPENED.** I had time to prepare, and then again I wasn’t prepared at all. You’re gone, for now, I left you at a train station, tears and sobs and all, and FFP2 masks out of place (yes, it’s still that time), the security staff gently ignoring us. And now the apartment is empty. Still stuffed with furniture (and clothes and knick-knacks), but without your presence (and clothes and knick knacks). I went through this moment in my head so many times and couldn’t really think past it. But yes… strangely enough, there’s a *“past it”*. I’m still here; I didn’t dissolve into nothingness.  
 
-Now I imagine that the sheets still smell like you, while I should finally have a shower. You left your furry hat which you certainly won’t need in Australia, and the red towel that will likely be hanging from the bathroom door forever. And for three days now, I avoided the kitchen, and instead of having breakfast at the table just like any other civilized human being, a three-minute egg and pancakes and half a grapefruit and whatnot, I grab the first thing I can find in the fridge, and stumble back to my musty, warm bed, trying to hold on to “before”. 
+Now I imagine that the sheets still smell like you, while I should finally have a shower. You left your furry hat which you certainly won’t need in Australia, and the red towel that will likely be hanging from the bathroom door forever. And for three days now, I avoided the kitchen, and instead of having breakfast at the table just like any other civilized human being, a three-minute egg and pancakes and half a grapefruit and whatnot, I grab the first thing I can find in the fridge, and stumble back to my musty, warm bed, trying to hold on to *“before”*. 
 
 *“Not over, just different”*, you promised when you booked your flight. 
 
@@ -11,7 +11,7 @@ I never liked breakfast in bed, by the way. It’s like sex on the beach, a nice
 
 This would be the moment to confess: The headline of this post is a lie. 
 
-I probably won’t last ten days, so I might never be able to tell you what happens after that (you lose all energy, and your body gets stiff and wrinkly as you soak in orange juice, with a newspaper sticking to your butt). We always died laughing about these “I did x for x days, here’s what happened.” Does anyone ever honestly say what doesn’t happen? I meditated for ten days – and then: nothing? No change? 
+I probably won’t last ten days, so I might never be able to tell you what happens after that (you lose all energy, and your body gets stiff and wrinkly as you soak in orange juice, with a newspaper sticking to your butt). We always died laughing about these *“I did x for x days, here’s what happened.”* Does anyone ever honestly say what doesn’t happen? I meditated for ten days – and then: nothing? No change? 
 
 I loved our morning conversations, and the fact that, in between sentences, you would occasionally jump up to get your notebook (and that we then, always, thought: Damn, we should have recorded this!). I never had a blog, and I was never a fan of putting my life on display. I’m a fiction writer, and turning very mundane personal experiences into very exciting fictional events always felt like the maximum publicity I could bear. 
 
