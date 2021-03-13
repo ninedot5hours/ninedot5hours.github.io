@@ -1,6 +1,4 @@
-Crossing Timezones and Thresholds
-
-I WANTED MY FIRST contribution to be seamless and focused, to tap into all the thoughts and emotions that your first post captures. But, the next thing I knew I was in an aluminum can following the curve of the earth and overcome by the fact that we have never gone for aas long as 12.5 hours without talking. Then, of course, all the wheels fell off!
+I wanted my first contribution to be seamless and focused, to tap into all the thoughts and emotions that your first post captures. But, the next thing I knew I was in an aluminum can following the curve of the earth and overcome by the fact that we have never gone for aas long as 12.5 hours without talking. Then, of course, all the wheels fell off!
 
 Not here anymore but not yet there/ not here not there / did I miss the threshold or am I stuck in it?
 
