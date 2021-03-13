@@ -1,4 +1,5 @@
 Tempests and Teacups.
+
 Or: The pros and cons of surviving a storm.
 
 Remember the time we watched “All is lost”, Robert Redford playing an aging sailor in the middle of the Pacific Ocean, fighting – or rather not-fighting – for his life? How we hated his turtle-like slowness, his indifference, how it made us all antsy that he, despite seeing the storm coming, found the time to get a proper shave and patch up his scratches? That he, despite knowing that his boat was going to sink, came back, one time, two time, three times to collect yet another useful item he hadn’t thought of in the first place? For days, we would rummage the internet for reviews, in sheer disbelieve how everyone seemed to love that movie so much (and wondering what we got so terribly wrong), euphorically celebrating every faint voice that agreed with us (most of them fellow sailor who, like us, couldn’t believe all the damn mistakes this dude makes. Anyway...).
