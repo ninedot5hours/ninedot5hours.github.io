@@ -1,0 +1,35 @@
+I’ve been struggling for days to find a way to respond to your post about "surrender" and couldn't find a way in. Mostly because I've been standing in my own way. Too vain, too stupid, too cowardly. In short, totally lacking the acceptance and surrender that is required to write, actually, to be, to feel anything, human. Then today I received a message from a friend—actually a mentor, a former university professor of mine—and somehow the door popped open. This is not all there is to be said on the subject and I think of the many unwritten subtitles that our blog has, the conflict among freedom, acceptance, surrender and the struggle for control is a central one.
+
+My friend Paul and me have chatted more or less daily for over a year on various subjects. Mostly about the crushing disaster that I felt my life had become and this conversation formed a lifeline which helped to pull me out. One of the first things that Paul said to me a year ago was in reference to Socrates and how when faced with events that seem unbearable to us that among the questions that we can (or must?) ask ourselves follow from Socrates' admonition to "know thyself". Those questions (perhaps the only questions we can ask ourselves): “what should I do?” and “how should I live?”
+
+I was reminded of this yesterday while reflecting on my life and these questions—during two weeks in quarantine—and realised that Paul had been right all along. That the only progress we can make is with ourselves. I sent him this quote which seems to capture the whole issue for me:
+
+*"The paradox seems to be, as Socrates demonstrated long ago, that the truly free individual is free only to the extent of his (her) own self-mastery. While those who will not govern themselves are condemned to find masters to govern over them."*—Steven Pressfield, ‘The War Of Art’
+
+I realised it is here, in this conflict, where the pain of our lives originates. Not in external events: the environment, politics, work, capitalism, consumerism, identity politics, *but in this confrontation with ourselves.* Do we have the courage to face and master ourselves?
+
+Plenty of influential thinkers have wondered about this, among them Jacques Lacan who told the riotuous Parisian students who would come to be known as the generation of '68: "what you aspire to as revolutionaries is a new master. You will get one." Theodor Adorno, perhaps reflecting on the same problematic when students occupied a lecture theatre in Frankfurt at about the same time, simply called the police.
+
+Paul responded to me that we "must always serve someone." He made this point by forwarding a link to a Bob Dylan track with a similar title. I laughed and said that "I guess most people are focused on serving themselves" to which Paul agreed saying that "they are serving something else—freedom comes within boundaries."
+
+Yes. No boundaries… no limits, no freedom… no nothing, literally. Just pure continuum from which neither thought or space can emerge.
+
+Despite this we think that we can escape limits in order to attain freedom, that freedom is actually the distance between ourselves and a limit or limits that might be imposed on us. I suppose it's this desire for escape (qua freedom) which lies at the bottom of our culture; to become bigger, richer, more powerful such that no one can finally put a limit on us and therefore we are free.
+
+But if this is freedom then what about Socrates? Is the only truly free individual him or her who has achieved self-mastery? I think so.
+
+But the social model of freedom (described above) which compels us, our society, is not self-mastery no matter how much we repeat, over and over, the *ideology* about "hard work", "taking the risk", “being smart” or “having earned it”.
+
+In reflecting on these questions and on my own pain and struggle it now seems to me that this self-knowledge—self-knowledge as self-mastery—is the only version of autonomy and authenticity that there is. And these are perhaps the best proxies that we have for freedom.
+
+In general, however, our society and the individuals who shape it, and who are shaped by it, have arrived at a place very far from this. The idea of "freedom under the law" and any principle sanctioned by the use of the word “democratic” before it have descended into farce. Governments are now errand boys for commercial interests. People or citizens, mere bearers of value (consumer spending, taxes, labour power) to be kept in motion to realise such value: automatons, the living dead. And ultimately it is the people (us, you, me, everyone) who are doubly responsible for this farce: it is the individual citizen, not the politicians, who are ultimately blamed for day-to-day problems (witness the shaming of overweight people, or blaming individuals for spreading covid); and, it is us who are to blame for allowing the calamity of politics to have reached this point. In Australia, the farce is played out for all to see as the state premier of Victoria dines regularly and in cosy fraternal circumstances with billionaires like Linsay Fox.
+
+On an individual level we lack the maturity to accept our insignificance in the cosmos and that the cosmos is potentially completely determined—a possibility which is completely abhorrent to the human ego. We live in the era of the ascendency of the ego where each and every one of us is unique, irreplaceable, irrepeatable and must be recognised above all else. But are we this special? Do we have anything like the sovereignty of will that we or our egos pretend to have? No… or, if I allow that such certainty is at odds with what I am saying then, more humbly than my ego would demand, it seems unlikely.
+
+This, then, is the context of our actual freedom. We must accept this dramatic limitation and, despite the evidence that we have no freedom, we must freely choose, each day, each moment, to live and be the bearers of the movement of life, of history, although that movement may already be written in its entirety.* For me, this acceptance, as contradictory as it may feel, is the only true place of freedom.
+
+My own feelings and struggles over recent days still raise a number of questions in relation to this: *Why do I remain so fearful? Why do I seek out any possible distraction in order to numb the pain?*
+
+There is much to reflect on, but for me, understanding acceptance as I have outlined it here goes a long way towards addressing these questions. This kind of acceptance or surrender is neither "giving up" nor does it result in nihilism. It is not easy but it is courageous and empowering. Out of it, perhaps, I can... we can... emerge into authentic life and freedom.
+
+* *Note: I was completely blown away by the masterful unfolding of this problematic by Ted Chiang in his “Story of Your Life” which was turned into the screenplay for “Arrival”, one of your favourite films. I am so humbled by his brilliant handling of such difficult and profound ideas. He achieves in a few pages what decades of “pop art” and buddhist monks will struggle to impart to us. It shows why true art remains so important, if also illusive.*
