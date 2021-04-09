@@ -17,6 +17,4 @@ It’s one of us posting at the time, whatever thought crosses our mind as a rep
 Only that one’s breakfast is now the other one’s dinner...
 
 
-#### Contact Us
-
-<a href="mailto:ninedot5hours@gmail.com"><i class="svg-icon email"></i></a>
+#### Contact Us: <a href="mailto:ninedot5hours@gmail.com"><i class="svg-icon email"></i></a>
