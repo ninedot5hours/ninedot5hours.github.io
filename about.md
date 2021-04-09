@@ -6,7 +6,7 @@ permalink: /about/
 
 #### We had these wonderful breakfast table conversations...
 
-<!-- #### Or Rather -->
+<img src="{{ site.baseurl }}/images/C+D-circ-001.png" width="400" height="200" alt="">
 
 ...About life and the appropriate sailing metaphors, about the best Blade Runner version and which beans are better in a cassoulet, small or large ones. About Wittgenstein and Ronaldo. About fake Zen monks and real Youtube gurus, about the fact that we’re not cool (without ever wondering: Why?) and whether we need to have those crippling moments of self-doubt in order to generate something authentic and worthwhile. Our conversations would almost always take so long until one of us had to jump up and really get some “proper” work done.  
 
