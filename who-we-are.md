@@ -16,7 +16,7 @@ We’ve always had these wonderful, endless breakfast table conversations. But w
     <p>D. is… a scriptwriter, nervous about cooking but brave about eating, walks on ice, lies on the floor (unwillingly), and finds deep wonder in quotidian stuff.</p>
 </div>
 <div style="clear: left;">
-    <p style="float: left;"><img ssrc="{{ site.baseurl }}/images/C-circ-001.png" width="100" height="100" alt=""></p>
+    <p style="float: left;"><img src="{{ site.baseurl }}/images/C-circ-001.png" width="100" height="100" alt=""></p>
     <br />
     <p>C. is a writer who loves horses, sailing, confit canard, natural wine & hand grinding my coffee. Each day I engage with life, beauty, truth… Wittgenstein & Marx</p>
 </div>
