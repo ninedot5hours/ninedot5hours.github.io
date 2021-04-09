@@ -1,11 +1,3 @@
----
-Daniela
-Title: Me, our watch and I
-Subtitle: On lovesick electronics and other mysteries  
-Color/ Mood: yellow
-Date 4.6.2021
----
-
 ##Me, our watch and I
 
 I was late, oh yes. Two wasted hours, some frayed nerves and a missed barbecue. But it was neither my fault nor the watch’s, Scout’s honor, but entirely the BVG, Berlin’s public transport corporation, messing it all up. 
