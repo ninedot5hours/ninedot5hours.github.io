@@ -1,5 +1,3 @@
-## Breakfast in bed
-
 IT HAPPENED. I had time to prepare, and then again I wasn’t prepared at all. You’re gone, for now, I left you at a train station, tears and sobs and all, and FFP2 masks out of place, the security staff gently ignoring us. And now the apartment is empty. Still stuffed with furniture (and clothes and knick-knacks), but without your presence (and clothes and knick-knacks). I went through this moment in my head so many times and couldn’t really think past it. But yes… strangely enough, there’s a “past it”. I’m still here; I didn’t dissolve into nothingness.  
 
 Now I imagine that the sheets still smell like you, while I should finally have a shower. You left your furry hat which you certainly won’t need in Australia, and the red towel that will likely be hanging from the bathroom door forever. And for three days now, I avoided the kitchen, and instead of having breakfast at the table just like any other civilized human being, a three-minute egg and pancakes and half a grapefruit and whatnot, I grab the first thing I can find in the fridge, and stumble back to my musty, warm bed, trying to hold on to “before”. 
