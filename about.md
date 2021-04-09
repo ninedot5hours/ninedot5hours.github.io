@@ -19,4 +19,4 @@ Only that one’s breakfast is now the other one’s dinner...
 
 #### Contact Us
 
-[here's our email address](mailto:ninedot5hours@gmail.com)
+<a href="mailto:ninedot5hours@gmail.com"><i class="svg-icon email"></i></a>
