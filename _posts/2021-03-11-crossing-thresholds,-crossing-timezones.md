@@ -1,0 +1,53 @@
+I wanted my first contribution to be seamless and focused, to tap into all the thoughts and emotions that your first post captured. The impulse is driven by fear or “resistance” as it is termed in the book you gave me. But it also has something to do with thresholds, another favourite word of ours. As I write this I approach a number of thresholds: from one place to another; from one geographic space to another; from one timezone to another; from one mental place to another; from somewhere to nowhere… or not there or not there yet. The trouble with thresholds is that you can get stuck. You can fail to cross over and fall back, or get lodged on one side or the other, or slip and fall into the gap in-between.
+
+Now I find myself inside an aluminum tube following the curve of the earth. Not ‘here‘ anymore and not ‘there’ yet. In this state 'in-between' I decided that I would just continue to talk to you via text message even though you will get 12 hours worth of reflections all at once! So I did, as I confronted all these thresholds and tried to pass over, falling back, trying again. An inner struggle and virtual conversation with you.
+
+[message 1] C: I have been immediately struck by one thing. As soon as we took off and the crew started warming up the meals, I was transported to somewhere that I didn't know I had been missing: the lands of exquisite south east Asian food. No more crazed shouting about bad German food (which I also secretly love) where it is just not possible to find these truly beautiful and mesmerising flavours, these daily works of art, and all the richness which belongs to the cuisines of SE Asia (and Australia).
+
+[message 2] C: Actually, I am now incredibly excited at the prospect of eating at the Flower Drum in Melbourne’s Chinatown or going to the noodle places that my brother finds on the unremarkable suburban streets of his neighbourhood.
+
+[message 3] C: I've just realized that the policy on these multi-timezone flights is to go straight into the time at destination. So, dinner has been immediately served and now we're in complete darkness, and me just a few hours ago having gotten out of bed after sleeping for the best part of 12 hours!
+
+[message 4] C: It is somehow significant to be reading Wittgenstein (well, indirectly as it's a biography... but there are many original quotes from passages and letters he wrote). My journey feels like it is following his. You pointed out that I have "thrived" in recent months, and it gives me great courage to feel that, like Wittgenstein, we can always change and it is, perhaps, a duty to ourselves and to life to strive to do so. To thrive and live and in this duty, to be guided by two questions (perhaps the only possible questions we can ask ourselves?): “what should I do?” and “how should I live?”
+
+[message 5] C: It is somewhat ironic that in the passages I'm read about Wittgenstein's life (while I was being "interrogated" by immigration at Schiphol… plunging me back into my existential storm) that LW was in another man-made storm fleeing for his life (literally) in the Carpathian mountains as the Russian's advanced.
+
+[message 6] C: There is something so beautiful in LW's connection of logic and ethics. Although this aim of his work shifted during his life what remained unchanged was his feeling of duty to live ethically, and it is this that has driven my fascination with Wittgenstein, my sense of fraternity.
+
+[message 7] C: In fact, I wonder if we are still as "human" as the men and women of the late 19th and early 20th centuries? Admittedly, this generation participated in organizing and conducting the most horrific events in human history, at the same time, in their correspondence many (although certainly not all) remained so human, so authentic, so animated by life for better and worse. I wonder if we are even capable of this today, or has our relation to other people become like the communication technologies we use: short, self-serving, unreflective? Is this a threshold that we’ve crossed over and become stuck in?
+
+[message 8] C: This whole impulse of mine was triggered by reading the famous opening words from the Tractatus Logico-Philosophicus: "What can be said at all can be said clearly; and whereof one cannot speak thereof one must be silent." I can't think, at least at the moment, of another such proposition which is at the same time both so logically and philosophically clear and so beautiful! Although Wittgenstein moved far away from the aims of the TLP, he never abandoned the spirit of this statement. His work attempted to show that logical, ethical and aesthetic propositions are "truths" and have the same structure. This structure can never be spoken of (described in language, a key to his later work) but only shown. I think that I am experiencing something of this right now. A feeling that I am confronted with profound truths of my life in this moment of transition—I see them, feel them, they register in my consciousness—but that language is completely inadequate to this experience.
+
+[message 9] C: Not only is the intersection of the logical (the rational, strategic, non-human), ethical and aesthetic (beauty, art, representation) where my greatest interest lies it also feels like an inescapable duty to pursue this intersection. Exactly the insane and mystical impulse that gripped Wittgenstein.
+
+This is also the intersection we’ve discovered in reading and discussing so many of the authors and teachers we’ve spent weeks discussing: John O'Donohue and the realisation of life as beauty; the question of ethics in business and our (capitalist) social structure; the logical versus the mystical; and that we cannot but seek to understand the world in which we are.
+
+[message 10] C: It’s strange but somehow also thrilling to be almost alone on the aircraft (10 passengers on a plane built to carry 300). I had hardly given it a thought but when you mentioned the plane would likely be "packed" I became quite apprehensive. Not just to be jammed up against the next person and gasping for uncontaminated air, but for the lack of space to let go of the terrible stress that I’ve been living with for so long.
+
+But the empty plane has allowed me, finally, to breathe after holding my breath and one final moment of anxiety at the border in Amsterdam. To confront yet another threshold and, perhaps, this time to cross over. While physical borders that are policed by the nation seem scary they are nothing, utterly unimportant compared with the thresholds we create inside ourselves. What has become completely clear to my in the past few hours is that the thresholds I am now beginning to traverse are internal… exactly as you have been gently saying to me for weeks.
+
+But now I can finally start to feel what it is like "to put to sea with the sails billowing in friendly winds." It's not that I don't miss so many people already, so terribly, including you and my sons, but that, for now, I have some space in which I can begin to move. To cross thresholds even though I have started it by crossing timezones.
+
+[message 11] C: Flying directly over the cradle of wine, now... and Tblisi. Would love to spend time there again. Maybe it's possible to sail to the Black Sea? I have just noticed that Georgia has proper mountains! I can see them rising up almost to the level that i’m flying on: incredible and beautiful.
+
+[message 12] C: Maybe a cabin in the hills for a while... writing, cooking and the unavoidable relationship to wine! We could visit some of my favourite places: the Vino Underground (a natural wine place) and the beautiful Georgian restaurant that is hidden in a courtyard behind the National Parliamentary Library on Lado Gudiashvili Street.
+
+[message 13] C: I am gazing out the window, now, at the perfectly true shapes of the world. The word “true” imposes itself: the curve of the wing; the roundness of the frozen lakes beneath us; the horizon as it splits the sun's rays into pink and orange and red and purple. I think these are the same truths expressed in the cut of a sail or the shape of a hull; the same as the correspondence between the wing tip of a bird and edge of a wave.
+
+[message 14] C: And now it is dark... like the ocean.
+
+[message 15] C: Just when I think I can relax I’m struck by an awful anxiety that I might lose these eyes and this heart that has begun to relearn how to feel and express things. The very eyes and heart that began to come back to life over your breakfast table.
+
+[message 16] C: (Thought: I wonder if posting these as I write them, without an internet connection, will preserve their times or will you receive them as one long stretch of babble? Answer: it turned out to be one long stretch.)
+
+[message 17] C: Trying to stay positive... but occasional twinges of "what have I done?" Perhaps these are good things, nothing is fixed, and I feel far better to be in motion and open to the world rather than thinking I am a victim and the universe is against me or nothing can be trusted. It is precisely this openness and trust that is the only possible way to be really human!
+
+[message 18] C: Or maybe it's the wine talking now! I have my own private bottle (apparently no one else wants any 🤔) and I've interrupted my fast to have a few glasses. It's nothing like as inspiring as a glass of "lo-fi" natural wine, but it will have to do.
+
+[message 19] C: (Haha... you thought that we would be out of communication for the longest time since we met... but, little do you realize, the communication is taking place nonetheless!  😆)
+
+[message 20] C: So, it also turns out that Wittgenstein enjoyed one of our favourite sports: making fun of popular culture (LW: advertising; you & me YouTube). Later in his life, Wittgenstein would tear out newspaper advertisements and send them to his friend, ridiculing their absurd style, e.g. "one instinctively feels that 'Two Steeples No. 83 Quality Sock' is a real man's sock. It's a sock of taste—dressy, fashionable, comfortable." If YouTube had existed I’m sure he would have made a video entitled: "I wore a Two Steeples No. 83 Sock every day for 30 days. Here's what happened."
+
+[message 21] C: We land in an hour. I've plowed through almost 600 pages of the Wittgenstein biography which seems like as good a way as I could spend 12 hours circling the planet. I've had breakfast (a beautiful souffle) to offset the slight uneasiness of fasting for days followed by a bottle of wine! But all is well. I am now eagerly waiting for the sun to rise for the second time in my day!
+
+[message 22] C: Oh my God... they just told us that is it 04:50 in Singapore and 26°C
