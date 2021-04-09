@@ -1,4 +1,4 @@
-##Breakfast in bed
+## Breakfast in bed
 
 IT HAPPENED. I had time to prepare, and then again I wasn’t prepared at all. You’re gone, for now, I left you at a train station, tears and sobs and all, and FFP2 masks out of place, the security staff gently ignoring us. And now the apartment is empty. Still stuffed with furniture (and clothes and knick-knacks), but without your presence (and clothes and knick-knacks). I went through this moment in my head so many times and couldn’t really think past it. But yes… strangely enough, there’s a “past it”. I’m still here; I didn’t dissolve into nothingness.  
 
